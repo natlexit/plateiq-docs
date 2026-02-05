@@ -63,4 +63,4 @@ We make no representation that the App is appropriate or available for use in yo
 
 If you have any questions about these Terms, please contact us:
 
-* **By email:** mikhninapp@gmail.com
+* **By email:** natlex.it@gmail.com
